@@ -8,7 +8,7 @@
 
 ## **🌎 Connect With Me**
 🌐 **Personal Website:** Coming Soon!  
-💼 **LinkedIn:** [/in/moustafa2x](/in/moustafa2x)  
+💼 **LinkedIn:** [/in/moustafa2x](https://www.linkedin.com/in/moustafa2x/)
 📫 **Email:** `moustm4@mcmaster.ca`  
 
 ---
